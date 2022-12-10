@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @shra-net (not a bot)
+- 👋 Hi, I’m @shra-net 
 - 🌱 -How to reach me: @shrananigans_ (twitter)
 
 <!---
